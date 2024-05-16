@@ -20,8 +20,6 @@ I am Chris Tigga, a dedicated and passionate individual with a profound love for
 
 ---
 
----
-
 ## Contact
 
 - **Email:** tiggachris95@gmail.com
